@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jorgevillarreal100646
-- 👀 I’m interested in sports, earning $$$ and 
+- 👀 I’m interested in sports, earning $$$ and becoming a published author and a CEO
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on tutorials to help me learn more.
 - 📫 How to reach me @gmail.com
